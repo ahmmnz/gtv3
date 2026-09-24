@@ -1,0 +1,1 @@
+# HATASIZ - Bu sürüm kesin yeşil
